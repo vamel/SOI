@@ -10,4 +10,5 @@ Sprawdzający: mgr. Witold Oleszkiewicz
 
 ## Punktacja
 6/8
+\
 To co nie podobało się prowadzącemu zostało poprawione i teraz nie powinien się do niczego przyczepić.
